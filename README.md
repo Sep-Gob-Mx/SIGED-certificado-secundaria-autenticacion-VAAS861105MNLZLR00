@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-VAAS861105MNLZLR00
+VAAS861105MNLZLR00
